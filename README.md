@@ -1,4 +1,4 @@
-![ChatGPT Image 18 مايو 2025، 10_40_23 م](https://github.com/user-attachments/assets/16991739-00bd-4c7a-8f99-9a1113f6fb9e)
+#[لقطة شاشة 2025-05-18 224113](https://github.com/user-attachments/assets/aa294fcc-64a6-4f4e-9222-ed7d6e9c59c5)
 
 # face_mask_project
 
