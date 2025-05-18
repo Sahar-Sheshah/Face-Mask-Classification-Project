@@ -1,4 +1,4 @@
-(https://github.com/user-attachments/assets/aa294fcc-64a6-4f4e-9222-ed7d6e9c59c5)
+![22](https://github.com/user-attachments/assets/557caf61-ed65-4b45-90e2-5f6f45d86950)
 
 # face_mask_project
 
